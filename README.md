@@ -1,1 +1,1 @@
-# MASTERCHEF-JUNIOR
+This meal consists of a medium-well sirloin steak with mashed potatoes and gravy on the side.
